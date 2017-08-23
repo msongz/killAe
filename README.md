@@ -1,2 +1,2 @@
 # kill-AE
-kill after effects immediately
+kill after effects immediately💀
